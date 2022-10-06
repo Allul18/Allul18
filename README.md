@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Allul18
+- 👀 I’m interested in gaming, fishing and motorcycles.
+- 🌱 I’m currently learning basic coding.
